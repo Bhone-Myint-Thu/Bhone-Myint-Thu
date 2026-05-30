@@ -75,8 +75,8 @@ Passionate about building scalable backend systems, automating infrastructure, a
 
 ## 📫 Connect With Me
 
-* LinkedIn: Your LinkedIn Profile
-* Email: [your-email@example.com](mailto:your-email@example.com)
+* LinkedIn: www.linkedin.com/in/bhone-myint-thu-4542a92a4
+* Email: bhonemyintthu232004@gmail.com
 
 ---
 
